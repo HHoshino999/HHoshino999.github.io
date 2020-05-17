@@ -1,1 +1,0 @@
-# HHoshino999.github.io
